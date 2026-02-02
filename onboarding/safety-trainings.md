@@ -1,0 +1,1 @@
+# Mandatory GSI safety instructions
